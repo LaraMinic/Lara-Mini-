@@ -1,1 +1,1 @@
-# Lara-Mini-
+# Lara-Minic
